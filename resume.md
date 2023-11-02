@@ -1,9 +1,9 @@
-# BRYCE SHEPARD
-/in/brycebshepard
+# BR SHEP
+/in/brSHEP
 
-(425) 760-7836
+(555) 555-5555
 
-brycebshepard@gmail.com
+brsh@gmail.com
 
 
 ## OBJECTIVE
